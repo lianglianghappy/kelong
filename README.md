@@ -1,6 +1,5 @@
-#klong
-oOOooOOObianji
-ooOooooo
-
-更上一层楼
-欲穷千里目
+静夜诗
+窗前明月光
+以是地上霜
+举头望明月
+低头思故乡
